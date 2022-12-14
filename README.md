@@ -7,7 +7,7 @@
 ![중년층](https://user-images.githubusercontent.com/24853452/207654480-3a6e8914-99c4-4b8d-b58b-36a3fba21181.gif)
 ![중년층](https://user-images.githubusercontent.com/24853452/207654513-79162e83-7b49-4145-a0a0-6cc9adae3f31.png)
 
-##노년층!
+##노년층
 ![노년층](https://user-images.githubusercontent.com/24853452/207654943-6c327404-955a-4f78-a6e6-61134ce400ef.gif)
 ![노년층](https://user-images.githubusercontent.com/24853452/207654709-9a968f21-f73b-4059-a4f9-81c7a8d97b8b.png)
 
